@@ -1,6 +1,6 @@
 /**
-https://t.me/zoroceo 
-ZORO CEO - Hold daily to get rich, hold every month to become a millionaire
+https://twitter.com/MecroToken 
+MECRO - Hold daily to get rich, hold every month to become a millionaire
 ░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░                                             
 ░░░░░░░▀████▄     ▄███▀░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░                                
 ░░░░░░░░░████    ████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░                               
